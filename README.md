@@ -1,9 +1,6 @@
-# La-So-Tu-Vi
+# Lập L&aacute; Số Tử Vi: An Sao V&agrave; Xem Tử Vi Ch&iacute;nh X&aacute;c
 Trong tử vi, mỗi người sẽ có một lá số tử vi riêng biệt dựa trên thời điểm và địa điểm sinh, qua đó phản ánh các yếu tố như tính cách, sức khỏe, sự nghiệp, vận mệnh tài chính, quan hệ xã hội và tình yêu... 
 <div>
-<div>
-<h1>Lập L&aacute; Số Tử Vi: An Sao V&agrave; Xem Tử Vi Ch&iacute;nh X&aacute;c</h1>
-</div>
 <hr></div>
 <div>
 <p>"Tử Vi" l&agrave; một m&ocirc;n huyền học - dự đo&aacute;n của người Phương Đ&ocirc;ng, n&oacute; dựa tr&ecirc;n nguy&ecirc;n tắc của ngũ h&agrave;nh (Kim, Mộc, Thủy, Hỏa, Thổ) v&agrave; ảnh hưởng của c&aacute;c sao, h&agrave;nh tinh đối với cuộc sống con người. Trong tử vi, mỗi người sẽ c&oacute; một&nbsp;<strong>l&aacute; số tử vi</strong>&nbsp;ri&ecirc;ng biệt dựa tr&ecirc;n thời điểm v&agrave; địa điểm sinh, qua đ&oacute; phản &aacute;nh c&aacute;c yếu tố như t&iacute;nh c&aacute;ch, sức khỏe, sự nghiệp, vận mệnh t&agrave;i ch&iacute;nh, quan hệ x&atilde; hội v&agrave; t&igrave;nh y&ecirc;u...&nbsp;<a href="https://kabala.vn/tu-vi-la-gi/" target="_blank" rel="noopener">[xem th&ecirc;m]</a></p>
