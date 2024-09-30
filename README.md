@@ -1,5 +1,5 @@
 # Lập L&aacute; Số Tử Vi: An Sao V&agrave; Xem Tử Vi Ch&iacute;nh X&aacute;c
-Tử Vi" l&agrave; một m&ocirc;n huyền học - dự đo&aacute;n của người Phương Đ&ocirc;ng, n&oacute; dựa tr&ecirc;n nguy&ecirc;n tắc của ngũ h&agrave;nh (Kim, Mộc, Thủy, Hỏa, Thổ) v&agrave; ảnh hưởng của c&aacute;c sao, h&agrave;nh tinh đối với cuộc sống con người. Trong tử vi, mỗi người sẽ c&oacute; một&nbsp;<strong>l&aacute; số tử vi</strong>&nbsp;ri&ecirc;ng biệt dựa tr&ecirc;n thời điểm v&agrave; địa điểm sinh, qua đ&oacute; phản &aacute;nh c&aacute;c yếu tố như t&iacute;nh c&aacute;ch, sức khỏe, sự nghiệp, vận mệnh t&agrave;i ch&iacute;nh, quan hệ x&atilde; hội v&agrave; t&igrave;nh y&ecirc;u...&nbsp;<a href="https://kabala.vn/tu-vi-la-gi/" target="_blank" rel="noopener">[xem th&ecirc;m]</a>
+Tử Vi" l&agrave; một m&ocirc;n huyền học - dự đo&aacute;n của người Phương Đ&ocirc;ng, n&oacute; dựa tr&ecirc;n nguy&ecirc;n tắc của ngũ h&agrave;nh (Kim, Mộc, Thủy, Hỏa, Thổ) v&agrave; ảnh hưởng của c&aacute;c sao, h&agrave;nh tinh đối với cuộc sống con người. Trong tử vi, mỗi người sẽ c&oacute; một&nbsp;<strong>l&aacute; số tử vi</strong>&nbsp;ri&ecirc;ng biệt dựa tr&ecirc;n thời điểm v&agrave; địa điểm sinh, qua đ&oacute; phản &aacute;nh c&aacute;c yếu tố như t&iacute;nh c&aacute;ch, sức khỏe, sự nghiệp, vận mệnh t&agrave;i ch&iacute;nh, quan hệ x&atilde; hội v&agrave; t&igrave;nh y&ecirc;u...&nbsp;<a href="https://kabala.vn/tu-vi-la-gi/" target="_blank" >[xem th&ecirc;m]</a>
 <div>
 <hr></div>
 <div>
@@ -372,8 +372,8 @@ Tử Vi" l&agrave; một m&ocirc;n huyền học - dự đo&aacute;n của ngư�
 <li>X&aacute;c định mệnh cục m&ugrave;a sinh v&agrave; ch&iacute;nh tinh thủ mệnh:</li>
 <li>Mệnh cục tương quan, mệnh m&ugrave;a tương quan, mệnh tinh tương quan, tam hợp cung mệnh v&agrave; mệnh tương quan</li>
 <li>Luận kh&iacute; chất &acirc;m dương ngũ h&agrave;nh</li>
-<li><strong>Luận tinh hệ Tử Vi</strong>&nbsp;(Sao Tử Vi Tr&ecirc;n 12 Cung Địa B&agrave;n:&nbsp;<a href="https://hoc.kabala.vn/sao-tu-vi-tren-12-cung-dia-ban" target="_blank" rel="noopener">https://hoc.kabala.vn/sao-tu-vi-tren-12-cung-dia-ban</a>)</li>
-<li><strong>Luận ch&iacute;nh tinh thủ mệnh</strong>&nbsp;(&Yacute; nghĩa cơ bản của 12 cung chức năng trong Tử Vi:&nbsp;<a href="https://go.kabala.vn/12-cung" target="_blank" rel="noopener" aria-invalid="true">https://go.kabala.vn/12-cung</a>)</li>
+<li><strong>Luận tinh hệ Tử Vi</strong>&nbsp;(Sao Tử Vi Tr&ecirc;n 12 Cung Địa B&agrave;n:&nbsp;<a href="https://hoc.kabala.vn/sao-tu-vi-tren-12-cung-dia-ban" target="_blank" >https://hoc.kabala.vn/sao-tu-vi-tren-12-cung-dia-ban</a>)</li>
+<li><strong>Luận ch&iacute;nh tinh thủ mệnh</strong>&nbsp;(&Yacute; nghĩa cơ bản của 12 cung chức năng trong Tử Vi:&nbsp;<a href="https://go.kabala.vn/12-cung" target="_blank"  aria-invalid="true">https://go.kabala.vn/12-cung</a>)</li>
 <li>Luận cung an th&acirc;n</li>
 <li>Luận đặc t&iacute;nh tứ sinh tứ mộ tứ ch&iacute;nh của mệnh</li>
 <li>Luận cung Ph&uacute;c</li>
@@ -384,7 +384,7 @@ Tử Vi" l&agrave; một m&ocirc;n huyền học - dự đo&aacute;n của ngư�
 <li>Luận lục s&aacute;t tinh: K&igrave;nh Dương, Đ&agrave; La, Địa Kh&ocirc;ng, Địa Kiếp, Hỏa Tinh, Linh Tinh.</li>
 <li>Luận lục qu&yacute; tinh: &Acirc;n Quang, Thi&ecirc;n Qu&yacute;, Thi&ecirc;n Quan, Thi&ecirc;n Ph&uacute;c, Tam Thai, B&aacute;t Tọa</li>
 <li>Luận nh&oacute;m sao tứ đức: Thi&ecirc;n Đức, Ph&uacute;c Đức, Nguyệt Đức, Long Đức</li>
-<li><strong>Luận Tuần Triệt</strong>&nbsp;(T&igrave;m hiểu về Tuần-Triệt:&nbsp;<a href="https://hoc.kabala.vn/tuan-triet" target="_blank" rel="noopener">https://hoc.kabala.vn/tuan-triet</a>)</li>
+<li><strong>Luận Tuần Triệt</strong>&nbsp;(T&igrave;m hiểu về Tuần-Triệt:&nbsp;<a href="https://hoc.kabala.vn/tuan-triet" target="_blank" >https://hoc.kabala.vn/tuan-triet</a>)</li>
 <li>Luận nh&oacute;m sao Kh&ocirc;ng vong: Tuần, Triệt, Đại Hao, Tuyệt, Thi&ecirc;n Hư</li>
 <li>Luận c&ocirc;ng việc v&agrave; thất nghiệp</li>
 <li>Luận tiền t&agrave;i v&agrave; ngh&egrave;o h&egrave;n</li>
